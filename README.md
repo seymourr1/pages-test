@@ -1,1 +1,1 @@
-Hello Ellie how are you doing today beautiful?
+A place for self reflection
